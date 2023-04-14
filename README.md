@@ -2,6 +2,9 @@
 
 There two versions of our AI: **Free trial and VIP version**
 
+# Download ApexPT-AI Right Now!
+
+
 # For More Information：
 
 QQ group：721726837
