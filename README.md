@@ -2,12 +2,12 @@
 
 There two versions of our AI: **Free trial and VIP version**
 
-# Download ApexPT-AI Right Now!
-
+# Download ApexPT-AI And Start Enjoy Right Now!
+https://url64.ctfile.com/f/44488864-839649050-5d9d97?p=8745 (Passcode: 8745)
 
 # For More Information：
 
-If you wanna to join us, please add:https://t.me/+Uz1z_AaUtZY1MmU9
+If you wanna to join us,being one of the sales member, please add:https://t.me/+Uz1z_AaUtZY1MmU9
 
 QQ group：721726837
 
