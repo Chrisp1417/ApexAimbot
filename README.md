@@ -7,6 +7,8 @@ There two versions of our AI: **Free trial and VIP version**
 
 # For More Information：
 
+If you wanna to join us, please add:https://t.me/+Uz1z_AaUtZY1MmU9
+
 QQ group：721726837
 
 discord：https://discord.gg/wY5vnukBvE
