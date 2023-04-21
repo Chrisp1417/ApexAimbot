@@ -1,4 +1,6 @@
 <img width="1458" alt="截屏2023-04-18 00 30 30" src="https://user-images.githubusercontent.com/105149596/232560798-49b99c40-8bc9-4c8b-bfe6-f993426b8044.png">
+<img width="947" alt="WechatIMG9251" src="https://user-images.githubusercontent.com/105149596/233665982-3a0e71e7-26c0-450b-a9a3-bfab6da1b29c.png">
+![WechatIMG9252](https://user-images.githubusercontent.com/105149596/233665989-15fd8258-b5e4-4e6e-bbb0-5009d0fba5b8.jpeg)
 
 # APEX-Legend-ApexPT-AI-Aimbot
 
